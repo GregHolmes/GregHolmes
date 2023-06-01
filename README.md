@@ -7,4 +7,4 @@
 📷 [Twitch Streamer](https://www.twitch.com/greg_holmes)<br/>
 💟 Loves making content that help you grow<br/>
 🌱 Loves to tinker with 3D Printing or a Raspberry Pi<br/>
-🧒 Father of 2 kids, and currently have around 24 guinea pigs.<br/>
+🧒 Father of 3 kids
